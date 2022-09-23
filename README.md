@@ -20,5 +20,4 @@ dey dey this is cheating rawwwww
 sare bro meerante unnollu
 
 anthe raww chusara lenollante entha chinna chupoo{}
-
-
+har pal yahaaan jee bhar jeeyo jo hein samaaa kal ho na ho har gadi badal rahi hai dhoop zindagi
